@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Shem Cally
 - 👀 I’m interested in building communities 
-- 🌱 I’m currently learning how to mange a team to help me expand my services 
+- 🌱 I’m currently learning how to manage a team to help me expand my services 
 - 💞️ I’m looking to collaborate on anything web3 growth 
 - 📫 How to reach me ... tg: Cally001, X: CryptoMODerator
 - 😄 Pronouns: He
